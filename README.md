@@ -1,4 +1,3 @@
-# ![images](https://github.com/user-attachments/assets/ecb970f4-7e4d-4c6b-8b6e-6e1b249c1180)
 
 
 # Ojective
